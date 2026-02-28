@@ -7,7 +7,7 @@
 
 (https://reanimation.straw.page/)
 
-<img width="90" height="600" alt="tumblr_f3d18a3832ac6e266b0d588fece6ed9e_88c75f40_400" src="https://github.com/user-attachments/assets/9f154907-e90b-4718-b038-57f1222d7a51" />
+<img width="70" height="600" alt="tumblr_f3d18a3832ac6e266b0d588fece6ed9e_88c75f40_400" src="https://github.com/user-attachments/assets/9f154907-e90b-4718-b038-57f1222d7a51" />
 
 
 } Check strawpage for more info !
