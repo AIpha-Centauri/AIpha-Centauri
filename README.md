@@ -9,7 +9,7 @@
 
 Int ; . Good Omens, Frankenstein, Ultrakill, ST, Will Wood, Generation Loss/Ranboo, Roblox
 
-Dni ; . Creeps , Pedos (supporters too) , Ws / Dream Supporters , Melanie Martinez , Anything political & Etc .
+Dni ; . Creeps , Pedos (supporters too) , Ws / Dream Supporters , Melanie Martinez , Anything political (Unless you'd like to discuss it professionally!) & Etc .
 
 
 
