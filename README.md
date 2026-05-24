@@ -7,6 +7,8 @@
 
 } Check strawpage for more info !
 
+Main fixations/fandoms (pls int!!) ; Project Hail Mary, Doctor Who, Good Omens 
+
 Int ; . Good Omens, Frankenstein, Ultrakill, ST, Will Wood, Generation Loss/Ranboo, Roblox
 
 Dni ; . Creeps , Pedos (supporters too) , Ws / Dream Supporters , Melanie Martinez , Anything political (Unless you'd like to discuss it professionally!) & Etc .
