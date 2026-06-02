@@ -1,13 +1,16 @@
-![tumblr_64239291985a3aee495a6117b9168b93_deefd04a_1280](https://github.com/user-attachments/assets/b213d2f8-1cc6-47a1-854b-95c183510c29)
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/e7f3f650-fa33-4014-b07b-213d0bfb05ce" />
 
 
-" You don't have a side anymore "
 
-(https://reanimation.straw.page/)
+" I will always remember when **The Doctor** was *me*. "
 
-} Check strawpage for more info !
 
-Main fixations/fandoms (pls int!!) ; Project Hail Mary, Doctor Who, Good Omens 
+} Planning to redo strawpage!!
+
+BYI: I have ***POSSIBLE*** , ***SUSPECTED*** Autism and ADHD !!!!!!! Pls be patient with me if I'm irritated, sad, etc...I usually only talk to close friends during those periods cuz I HATE lashing out at ppl on accident!!! I never wanna harm anybody on purpose!! I also LOVE my friends and my gf VERY much and I get awfully defensive over them!!
+
+
+Main fixations/fandoms (pls int!!) ; Project Hail Mary, ***Doctor Who***, Good Omens 
 
 Int ; . Good Omens, Frankenstein, Ultrakill, ST, Will Wood, Generation Loss/Ranboo, Roblox
 
@@ -16,7 +19,7 @@ Dni ; . Creeps , Pedos (supporters too) , Ws / Dream Supporters , Melanie Martin
 
 
 
-<img width="400" height="400" alt="Untitled136_20260327232808" src="https://github.com/user-attachments/assets/fa1877ca-331a-4371-abaa-4d87f75f1db4" />
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/afadd3f1-82ea-4d0d-b8e6-7743a58603df" />
 
 
 
@@ -24,23 +27,25 @@ Dni ; . Creeps , Pedos (supporters too) , Ws / Dream Supporters , Melanie Martin
 
 
 
-.
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/52002261-90dc-43e3-9477-db7360273db1" />
-
-Bohemian Rhaspody
+<img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/2896ec1f-060c-4d66-af3a-0af914b740df" />
 
 
-0:49 ───|────────────5:55
+Me and my lovely wife, Cherri <3 !!!!!!!
 
 
-
-↻ ◁ II ▷ ↺
+} I love them with all my life, js as much River loved 11 !!!
 
 
 
- ![tumblr_64239291985a3aee495a6117b9168b93_deefd04a_1280](https://github.com/user-attachments/assets/e50edc30-fd30-46aa-bc43-debcdc4db616)
+𓂃˚₊⊹
+
+
+
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/c473acd4-daaf-4c2b-bba5-904c1949d7f0" />
+
 
 
 
