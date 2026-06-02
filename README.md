@@ -7,7 +7,9 @@
 
 } Planning to redo strawpage!!
 
-BYI: I have ***POSSIBLE*** , ***SUSPECTED*** Autism and ADHD !!!!!!! Pls be patient with me if I'm irritated, sad, etc...I usually only talk to close friends during those periods cuz I HATE lashing out at ppl on accident!!! I never wanna harm anybody on purpose!! I also LOVE my friends and my gf VERY much and I get awfully defensive over them!!
+BYI ; I have ***POSSIBLE*** , ***SUSPECTED*** Autism and ADHD !!!!!!! Pls be patient with me if I'm irritated, sad, etc...I usually only talk to close friends during those periods cuz I HATE lashing out at ppl on accident!!! I never wanna harm anybody on purpose!! I also LOVE my friends and my gf VERY much and I get awfully defensive over them!!
+
+Honorable mention ; I kin *so* many characters but mostly The 11th Doctor , Angel Crowley , Victor Frankenstein and Ryland Grace!!! THEY'RE ALL LITERALLY ME!!!!!! I also like when ppl call me them :))) 
 
 
 Main fixations/fandoms (pls int!!) ; Project Hail Mary, ***Doctor Who***, Good Omens 
